@@ -1,1 +1,1 @@
-programa para ganar dinero
+programa para ganar mucho dinero
